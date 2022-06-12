@@ -1,4 +1,14 @@
-Link to talk: https://www.churchofjesuschrist.org/study/general-conference/2022/04/23holland?lang=eng
+
+#### President Nelson's Quote: 
+"... You need to understand three fundamental truths that will help you prepare your future course:
+- First, know the truth about who you are.
+- Second, know the truth about what Heavenly Father and His Son have offered you.
+- And third, know the truth related to your conversion."
+
+Link: https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2022/05/12nelson?lang=eng
+
+#### Link to Holland's talk: 
+https://www.churchofjesuschrist.org/study/general-conference/2022/04/23holland?lang=eng
 
 # Group Instructions: 
 1. Assign one person to act as scribe (they can just use their phone)
