@@ -13,17 +13,25 @@ Here is an easy example.
 
 ![ex2](ex2ifthen.png)
 
+For this, I write: 
+* Receiving all things in thankfulness -> Being made glorious
+
 This is a more complex example, where there are two if-then statements, Elder Soares just uses the 1st "then" as the "if" for the second if-then statement.
 
 ![ex1](ex1ifthen.png)
 
+For this, I write: 
+* Remembering what our eyes have seen and our hearts have felt concerning Christ -> increased amazement at what Christ did
+* Increased amazement at what Christ did -> 
+  * Healing from our spiritual and emotional wounds 
+  * Drawing closer to Christ
+
 # Group Instructions: 
-1. One person will act as scribe (they can just use their phone)
-4. Individually, read and ponder the paragraphs assigned to your group, looking for truths. (2 minutes)
-6. Going in a circle, each of you say a truth/principle that you learned and categorize it according to President Nelson's categories, until you don't have any more. (2 minutes)
-7. The scribe writes down the if then statements and its category in their notes. 
-8. Come up with one brief thing as a group you would like to share with the quorum. (1 minute)
-9. The scribe writes the truths on the whiteboard. If someone has already written it down, don't write it. (2 minutes)
+1. Compile the if-then statements as a group
+1. One person will act as scribe (they can just use their phone) to write the if-then statements. 
+4. As a group, read out loud each paragraph (or the one paragraph), stopping every time you identify if-then statements. 
+7. The scribe writes down the if-then statements in their notes. 
+9. After finishing, someone in the group writes the truths on the whiteboard. If someone has already written it down, don't write it. (2 minutes)
 
 ## Group 1 Paragraphs
 P6-9
