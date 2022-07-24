@@ -46,7 +46,7 @@ For this, I write:
    8. The communication facilitator tells the board scribe what to write on the board
    9. The board scribe writes them on the board, connecting things with arrows
 9. A note: **There are a lot of awesome things... you probably won't have time to write them all down. So pick the most significant ones to your group, and write them down**.
-10. You may cheat and see an extended diagram by clicking the "Cheat" link for your group. It would be cooler though if you figured it out as a group though, but it may give you helpful ideas. 😄
+10. You may cheat and see an extended diagram by clicking the "Cheat" link for your group. It would be cooler though if you figured it out as a group though, but it may give you helpful ideas. 😄 You can make your own diagrams for free, and save them as files using [draw.io, also known as diagrams.net](https://draw.io).
 
 ## Group - Following Christ and Having Awe Results In
 
