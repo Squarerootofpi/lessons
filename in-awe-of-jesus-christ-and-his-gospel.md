@@ -58,7 +58,7 @@ Therefore, as we genuinely and continually strive to learn of the Savior and fol
 
 My beloved brothers and sisters, I pray that we will ever stand in awe of Jesus Christ and His complete, infinite, and perfect love. May the remembrance of what our eyes have seen and our hearts have felt increase our amazement at the Savior’s atoning sacrifice, which can heal us of our spiritual and emotional wounds and help us to draw closer to Him. May we marvel at the great promises that the Father has in His hands and that He has prepared for those who are faithful:
 
-[Cheat Here](pictures/in-awe-of-jesus-christ-and-his-gospel_cheat-following-christ-results.png)
+[Cheat Here](https://raw.githubusercontent.com/Squarerootofpi/lessons/main/pictures/in-awe-of-jesus-christ-and-his-gospel_cheat-following-christ-results.png)
 
 ## Group - Danger of Apathy
 
@@ -68,7 +68,7 @@ Such apathy is characterized by the gradual loss of our excitement to engage ful
 
 Pastor Aiden Wilson Tozer, a renowned writer and valiant Christian, wrote, "Complacency is a deadly foe of all spiritual growth." Wasn’t this exactly what happened to the people of Nephi shortly after the birth of Christ? They "began to be less and less astonished at a sign or a wonder from heaven, … \[disbelieving\] all which they had heard and seen." Thus did Satan "blind their eyes and lead them away to believe that the doctrine of Christ was a foolish and a vain thing."
 
-[Cheat Here](pictures/in-awe-of-jesus-christ-and-his-gospel_cheat-danger-of-apathy.png)
+[Cheat Here](https://raw.githubusercontent.com/Squarerootofpi/lessons/main/pictures/in-awe-of-jesus-christ-and-his-gospel_cheat-danger-of-apathy.png)
 
 ## Group - Countering Apathy/Complacency
 
@@ -79,9 +79,9 @@ My brothers and sisters, when we truly are in awe of Jesus Christ and His gospel
 My beloved brothers and sisters, in His perfect and infinite love and knowing our human nature, the Savior has established the way for us to avoid falling into the trap of spiritual apathy. The Savior’s invitation gives us a broader perspective, especially considering the complex world in which we live: "Learn of me, and listen to my words; walk in the meekness of my Spirit, and you shall have peace in me." As we accept the Savior’s invitation, we demonstrate our humility, our desire to be teachable, and our hope to become more like Him.15 This invitation also includes serving Him and ministering to God’s children "with all \[our\] heart, might, mind and strength." At the core of our effort in this journey are, of course, the two great commandments: to love the Lord our God and love our neighbor as ourselves.
 
 
-[Cheat Here](pictures/in-awe-of-jesus-christ-and-his-gospel_cheat-how-we-counter-apathy.png)
+[Cheat Here](https://raw.githubusercontent.com/Squarerootofpi/lessons/main/pictures/in-awe-of-jesus-christ-and-his-gospel_cheat-how-we-counter-apathy.png)
 
-[Cheat Here for the next paragraph](pictures/in-awe-of-jesus-christ-and-his-gospel_cheat-basic-following-christ-results.png)
+[Cheat Here for the next paragraph](https://raw.githubusercontent.com/Squarerootofpi/lessons/main/pictures/in-awe-of-jesus-christ-and-his-gospel_cheat-basic-following-christ-results.png)
 
 ## Group - Gaining Awe
 
@@ -91,7 +91,7 @@ This type of behavior is part of Jesus’s divine character and was evident in e
 
 My dear friends, all these things strengthen our spiritual wonder regarding the gospel and move us to joyfully keep the covenants we make with the Lord—even in the midst of the trials and challenges we experience. Of course, for these outcomes to happen, we need to immerse ourselves with faith and real intent in the Savior’s teachings, striving to incorporate His attributes into our way of being. In addition, we need to draw nearer to Him through our repentance, seeking His forgiveness and His redeeming power in our lives and keeping His commandments. The Lord Himself promised that He would direct our paths if we would trust in Him with all our hearts, acknowledging Him in all our ways and not leaning on our own understanding.
 
-[Cheat Here](pictures/in-awe-of-jesus-christ-and-his-gospel_cheat-how-we-gain-awe.png)
+[Cheat Here](https://raw.githubusercontent.com/Squarerootofpi/lessons/main/pictures/in-awe-of-jesus-christ-and-his-gospel_cheat-how-we-gain-awe.png)
 
 ## Group - Ministering
 
@@ -101,4 +101,4 @@ A man I met recently, whose name is Wes and who is attending the conference toda
 
 From then on, Wes and the missionaries began to communicate frequently. Elder Jones and his companion provided weekly acts of service and spiritual messages that helped Wes to recover his awe of the Savior and His gospel. It rekindled the flame of his testimony of the truth and of the Savior’s love for him. Wes felt the peace that comes from the Comforter and gained the strength he needed to return to the fold. He told me that this experience brought him spiritually and emotionally back to life and helped him to eliminate the feelings of bitterness accumulated over the years because of the difficult experiences he had been through.
 
-[Cheat Here](pictures/in-awe-of-jesus-christ-and-his-gospel_cheat-ministering.png)
+[Cheat Here](https://raw.githubusercontent.com/Squarerootofpi/lessons/main/pictures/in-awe-of-jesus-christ-and-his-gospel_cheat-ministering.png)
