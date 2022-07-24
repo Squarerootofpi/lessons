@@ -48,7 +48,7 @@ For this, I write:
 9. A note: **There are a lot of awesome things... you probably won't have time to write them all down. So pick the most significant ones to your group, and write them down**.
 10. You may cheat and see an extended diagram by clicking the "Cheat" link for your group. It would be cooler though if you figured it out as a group though, but it may give you helpful ideas. 😄 You can make your own diagrams for free, and save them as files using [draw.io, also known as diagrams.net](https://draw.io).
 
-## Group - Following Christ and Having Awe Results In
+## Group 1 - Following Christ and Having Awe Results In
 
 ### P 12-14
 
@@ -60,7 +60,7 @@ My beloved brothers and sisters, I pray that we will ever stand in awe of Jesus 
 
 [Cheat Here](https://raw.githubusercontent.com/Squarerootofpi/lessons/main/pictures/in-awe-of-jesus-christ-and-his-gospel_cheat-following-christ-results.png)
 
-## Group - Danger of Apathy
+## Group 2 - Danger of Apathy
 
 ### P 5-6
 
@@ -70,7 +70,7 @@ Pastor Aiden Wilson Tozer, a renowned writer and valiant Christian, wrote, "Comp
 
 [Cheat Here](https://raw.githubusercontent.com/Squarerootofpi/lessons/main/pictures/in-awe-of-jesus-christ-and-his-gospel_cheat-danger-of-apathy.png)
 
-## Group - Countering Apathy/Complacency
+## Group 3 - Countering Apathy/Complacency
 
 ## P 4, 7
 
@@ -83,7 +83,7 @@ My beloved brothers and sisters, in His perfect and infinite love and knowing ou
 
 [Cheat Here for the next paragraph](https://raw.githubusercontent.com/Squarerootofpi/lessons/main/pictures/in-awe-of-jesus-christ-and-his-gospel_cheat-basic-following-christ-results.png)
 
-## Group - Gaining Awe
+## Group 4 - Gaining Awe
 
 ### P 8-9
 
@@ -93,7 +93,7 @@ My dear friends, all these things strengthen our spiritual wonder regarding the 
 
 [Cheat Here](https://raw.githubusercontent.com/Squarerootofpi/lessons/main/pictures/in-awe-of-jesus-christ-and-his-gospel_cheat-how-we-gain-awe.png)
 
-## Group - Ministering
+## Group 5 - Ministering
 
 ### P 10-11
 
