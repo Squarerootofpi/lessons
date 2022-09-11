@@ -5,11 +5,6 @@
 ### Resources Used: 
 
 #### President Nelson's Devotional (from May): 
-"... You need to understand three fundamental truths that will help you prepare your future course:
-- First, know the truth about who you are.
-- Second, know the truth about what Heavenly Father and His Son have offered you.
-- And third, know the truth related to your conversion."
-
 Link: https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2022/05/12nelson?lang=eng
 
 #### Link to Elder Pace's talk: 
@@ -44,6 +39,8 @@ https://www.churchofjesuschrist.org/study/general-conference/2022/04/54pace?lang
 
 > To be most effective, your experiences with the scriptures must be your own. Reading or hearing about another person’s experiences and insights can be helpful, but that won’t bring the same converting power. There is no substitute for the time you spend in the scriptures, hearing the Holy Ghost speak directly to you.
 
+## Group Discussion: Come Follow Me
+
 [Elder Mark L. Pace (Paragraphs 22-27)](https://www.churchofjesuschrist.org/study/general-conference/2022/04/54pace?lang=eng&id=22-27#22)
 
 > When the Lord’s living prophet, President Nelson, introduced us to Come, Follow Me as a means of studying the scriptures, he invited us to transform our homes into sanctuaries of faith and centers of gospel learning.
@@ -58,8 +55,12 @@ https://www.churchofjesuschrist.org/study/general-conference/2022/04/54pace?lang
 
 > 4. these changes in your family will be dramatic and sustaining.
 
+### Group Questions to Discuss: 
 
-### Perhaps with time:
+1. How do you personally, and as a family implement come follow me? 
+2. What blessings have you seen in your lives from Come Follow Me? 
+
+## Perhaps with time:
 
 [Elder Mark L. Pace (Paragraphs 41)](https://www.churchofjesuschrist.org/study/general-conference/2022/04/54pace?lang=eng&id=41#41)
 
