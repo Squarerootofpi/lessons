@@ -44,7 +44,7 @@ https://www.churchofjesuschrist.org/study/general-conference/2023/04/54stanfill?
 > “When they were filled, he said unto his disciples, Gather up the fragments that remain, that nothing be lost.” <br>
 > The Savior perfected the humble offering.
 
-## Anecdote 3. 
+## Anecdote 3. An example from the Bible: Peter walking on water
 
 https://www.churchofjesuschrist.org/study/general-conference/2023/04/54stanfill?lang=eng&id=p17-p23#p17
 
