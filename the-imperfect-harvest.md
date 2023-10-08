@@ -61,8 +61,8 @@ https://www.churchofjesuschrist.org/study/general-conference/2023/04/54stanfill?
 
 ## Questions: 
 
-- How have you seen God perfect the imperfect harvests of others?
-- How have you seen God perfect the imperfect harvests in your own life?
+- How have you seen God perfect the imperfect offerings of others?
+- How have you seen God perfect the imperfect offerings in your life or family?
 
 
 # Perfectionism vs Becoming Perfected in Christ
