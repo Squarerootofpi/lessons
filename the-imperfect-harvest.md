@@ -133,15 +133,15 @@ The field is white **already** to harvest.
 
 The field is white, **all ready** to harvest.
 
-The student is awake **already** for school.
+The student is awake **already** to go to school.
 
-The student is awake, **all ready** for school.
+The student is awake, **all ready** to go to school.
 
-God's child is keeping a covenant relationship with Christ **already** for perfection and exaltation.
+God's child is keeping a covenant relationship with Christ **already** to be perfected and exalted.
 
-God's child is keeping a covenant relationship with Christ, **all ready** for perfection and exaltation. 
+God's child is keeping a covenant relationship with Christ, **all ready** to be perfected and exalted. 
 
-God's child is keeping a covenant relationship with Christ **already** for living in an eternal relationship with God forever.
+God's child is keeping a covenant relationship with Christ **already** to live in an eternal relationship with God forever.
 
-God's child is keeping a covenant relationship with Christ, **all ready** for living in an eternal relationship with God forever. 
+God's child is keeping a covenant relationship with Christ, **all ready** to live in an eternal relationship with God forever. 
 
