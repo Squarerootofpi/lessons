@@ -147,3 +147,10 @@ God's child is keeping a covenant relationship with Christ, **all ready** to liv
 ## Questions:
 - How can our covenants bring peace in a world that demands so much of us? 
 - What do you find comforting about the way that God has set up His plan to help us become perfect in Christ?
+
+
+# Additional Notes:
+
+Elder Robert M. Daines' talk that relates to the concept of not focusing on getting into heaven, but experiencing a covenant relationship with God:
+
+https://www.churchofjesuschrist.org/study/general-conference/2023/10/13daines?lang=eng
