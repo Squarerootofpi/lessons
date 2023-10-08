@@ -67,7 +67,7 @@ https://www.churchofjesuschrist.org/study/general-conference/2023/04/54stanfill?
 
 # Perfectionism vs Becoming Perfected in Christ
 
-## 1. 
+## 1. Perfectionism vs Covenant Keeping
 
 https://www.churchofjesuschrist.org/study/general-conference/2023/04/54stanfill?lang=eng&id=p5-p7#p5
 
@@ -77,7 +77,7 @@ https://www.churchofjesuschrist.org/study/general-conference/2023/04/54stanfill?
 
 > Becoming perfected in Christ is another matter. It is the process—lovingly guided by the Holy Ghost—of becoming more like the Savior. The standards are set by a kind and all-knowing Heavenly Father and clearly defined in the covenants we are invited to embrace. It relieves us of the burdens of guilt and inadequacy, always emphasizing who we are in the sight of God. While this process lifts us and pushes us to become better, we are measured by our personal devotion to God that we manifest in our efforts to follow Him in faith. As we accept the Savior’s invitation to come unto Him, we soon realize that our best is good enough and that the grace of a loving Savior will make up the difference in ways we cannot imagine.
 
-## 2. 
+## 2. Christlike Emulation as an antidote for comparison
 
 https://www.churchofjesuschrist.org/study/general-conference/2023/04/54stanfill?lang=eng&id=p27-p33#p27
 
@@ -91,7 +91,7 @@ https://www.churchofjesuschrist.org/study/general-conference/2023/04/54stanfill?
 
 > Regardless of how insignificant our efforts may seem, if we are sincere, the Savior will use us to accomplish His work. If we simply do the best we can and trust Him to make up the difference, we can become part of the miracles that surround us.
 
-## 3. 
+## 3. Be of good cheer; a sincere offering will be perfected
 
 https://www.churchofjesuschrist.org/study/general-conference/2023/04/54stanfill?lang=eng&id=p24-p26#p24
 
@@ -101,7 +101,7 @@ https://www.churchofjesuschrist.org/study/general-conference/2023/04/54stanfill?
 
 > We must remember that whatever our best-but-imperfect offering is, the Savior can make it perfect. No matter how insignificant our efforts may seem, we must never underestimate the Savior’s power. A simple word of kindness, a brief but sincere ministering visit, or a Primary lesson lovingly taught can, with the Savior’s help, provide comfort, soften hearts, and change eternal lives. Our clumsy efforts can lead to miracles, and in the process, we can participate in a perfect harvest.
 
-## 4. 
+## 4. The importance of our offering
 
 https://www.churchofjesuschrist.org/study/general-conference/2023/04/54stanfill?lang=eng&id=p34-p39#p34
 
