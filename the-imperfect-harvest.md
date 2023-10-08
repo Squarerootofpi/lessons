@@ -7,9 +7,11 @@ Talk Link: https://www.churchofjesuschrist.org/study/general-conference/2023/04/
 
 # Questions to ponder during the lesson:
 
-### If our livelihood in eternal life depends on various harvests in this life, how are we supposed to deal with imperfect harvests in our life? 
+### How are we supposed to deal with the imperfect offerings and harvests in our lives? 
 
-### Does perfection come from the individual harvesting or work we do on earth? 
+### Where does perfection in our offerings come from? 
+
+### How do we reconcile being perfected in Christ with our imperfect offerings?
 
 # Perfection in Harvesting and Offering Anecdotes
 
