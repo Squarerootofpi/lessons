@@ -121,8 +121,6 @@ https://www.churchofjesuschrist.org/study/general-conference/2023/04/54stanfill?
 - What role do covenants with God and Jesus Christ play in becoming perfected? 
 - How do we properly focus on improving without falling into the pitfalls of perfectionism and comparison?
 - How does Christ assist us in our efforts?
-- What do you find comforting about the way that God has set up His plan to help us become perfect in Christ?
-- How can our covenants bring us peace in a world that demands so much of us? 
 
 # Perfected in Christ "already" vs "all ready"
 
@@ -145,3 +143,6 @@ God's child is keeping a covenant relationship with Christ **already** to live i
 
 God's child is keeping a covenant relationship with Christ, **all ready** to live in an eternal relationship with God forever. 
 
+## Questions:
+- How can our covenants bring peace in a world that demands so much of us? 
+- What do you find comforting about the way that God has set up His plan to help us become perfect in Christ?
