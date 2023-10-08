@@ -133,7 +133,7 @@ The field is white **already** to harvest.
 
 The field is white, **all ready** to harvest.
 
-The student is awake **already** to go to school.
+The student is awake **already** for going to school.
 
 The student is awake, **all ready** to go to school.
 
