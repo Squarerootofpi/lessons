@@ -126,6 +126,7 @@ https://www.churchofjesuschrist.org/study/general-conference/2023/04/54stanfill?
 
 https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/4?lang=eng&id=p4#p4
 
+> D&C 4:4. For behold the field is white already to harvest; and lo, he that thrusteth in his sickle with his might, the same layeth up in store that he perisheth not, but bringeth salvation to his soul;
 
 The field is white **already** to harvest.
 
