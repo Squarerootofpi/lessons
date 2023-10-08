@@ -11,7 +11,7 @@ Talk Link: https://www.churchofjesuschrist.org/study/general-conference/2023/04/
 
 ### Does perfection come from the individual harvesting or work we do on earth? 
 
-# Perfection in Harvesting Anecdotes
+# Perfection in Harvesting and Offering Anecdotes
 
 ## Anecdote 1. An example of a real harvest
 
