@@ -1,4 +1,6 @@
-# Summer doctrinal mastery review
+# Summer Doctrinal Mastery Review (stay tuned to see if this lesson will be boring)
+
+## Why do we do this??
 
 https://www.churchofjesuschrist.org/study/manual/doctrinal-mastery-core-document-2023/introduction-to-doctrinal-mastery?lang=eng
 
@@ -6,10 +8,10 @@ Doctrinal Mastery focuses on two outcomes:
 
 1. Learn and apply divine principles for acquiring spiritual knowledge. Heavenly Father has revealed principles for acquiring spiritual knowledge. These principles include acting in faith, examining concepts and questions with an eternal perspective, and seeking further understanding through divinely appointed sources. We develop doctrinal mastery as we apply these principles during and outside of class and seek answers to doctrinal, personal, social, and historical questions in a way that invites the Holy Ghost to strengthen our faith in Heavenly Father and Jesus Christ.
 2. Master the doctrinal mastery scripture passages and the doctrine of the gospel of Jesus Christ that they teach. This outcome is achieved by:
-   1. Knowing the doctrine taught in the doctrinal mastery scripture passages.
-   2. Explaining the doctrine clearly using the associated doctrinal mastery scripture passages.
-   3. Being able to remember and locate the doctrinal mastery scripture passages and memorize the key scripture phrases.
-   4. Applying the doctrine of the gospel of Jesus Christ and the principles of acquiring spiritual knowledge in our daily choices and in our responses to doctrinal, personal, social, and historical issues and questions.
+   1. **Knowing the doctrine** taught in the doctrinal mastery scripture passages.
+   2. **Explaining the doctrine clearly** using the associated doctrinal mastery scripture passages.
+   3. **Being able to remember and locate the doctrinal mastery scripture passages and memorize the key scripture phrases**.
+   4. **Applying the doctrine of the gospel of Jesus Christ and the principles of acquiring spiritual knowledge in our daily choices and in our responses to doctrinal, personal, social, and historical issues and questions.**
 
 
 https://www.churchofjesuschrist.org/study/manual/doctrinal-mastery-core-document-2023/doctrinal-mastery-passages-and-key-phrases?lang=eng
