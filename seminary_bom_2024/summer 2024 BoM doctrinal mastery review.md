@@ -21,10 +21,9 @@ Doctrinal Mastery focuses on two outcomes:
 Each scripture: 
 - Write or mark the reference
 - Write the key phrase
-- Write the doctrine in your own words
 - Write how would this affect your life or your choices if...
-   - It is **not!** true?
-   - It is true?
+   - You did not know this doctrine?
+   - You knew this verse was true?
 
 https://www.churchofjesuschrist.org/study/manual/doctrinal-mastery-core-document-2023/doctrinal-mastery-passages-and-key-phrases?lang=eng
 
