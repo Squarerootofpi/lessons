@@ -6,6 +6,8 @@ Introduction: Steed
 - Name, from, family, 
 - Bread, pictures
 
+Kahoot mental prep meme
+
 Lesson: Doctrinal Mastery Understand
 --- 
 Each scripture: 
@@ -26,7 +28,7 @@ Each scripture:
    1. daily choices
    2. Responses to doctrinal, personal, social, and historical issues and questions.
 
-
+Kahoot
 
 
 Prayer
