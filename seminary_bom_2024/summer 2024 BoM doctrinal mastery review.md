@@ -1,5 +1,7 @@
 # Summer Doctrinal Mastery Review (stay tuned to see if this lesson will be boring)
 
+## First, an introduction from brother Steed...
+
 ## Why do we do this??
 
 https://www.churchofjesuschrist.org/study/manual/doctrinal-mastery-core-document-2023/introduction-to-doctrinal-mastery?lang=eng
@@ -13,6 +15,16 @@ Doctrinal Mastery focuses on two outcomes:
    3. **Being able to remember and locate the doctrinal mastery scripture passages and memorize the key scripture phrases**.
    4. **Applying the doctrine of the gospel of Jesus Christ and the principles of acquiring spiritual knowledge in our daily choices and in our responses to doctrinal, personal, social, and historical issues and questions.**
 
+
+## Make the Scriptures Work for You:
+
+Each scripture: 
+- Write or mark the reference
+- Write the key phrase
+- Write the doctrine in your own words
+- Write how would this affect your life or your choices if...
+   - It is **not!** true?
+   - It is true?
 
 https://www.churchofjesuschrist.org/study/manual/doctrinal-mastery-core-document-2023/doctrinal-mastery-passages-and-key-phrases?lang=eng
 
@@ -41,3 +53,12 @@ https://www.churchofjesuschrist.org/study/manual/doctrinal-mastery-core-document
 **Alma 39:9**: “Go no more after the lusts of your eyes.”
 
 > 9 Now my son, I would that ye should repent and forsake your sins, and go no more after the lusts of your eyes, but cross yourself in all these things; for except ye do this ye can in nowise inherit the kingdom of God. Oh, remember, and take it upon you, and cross yourself in these things.
+
+
+
+
+## Kahoot 
+
+Well, if you read before we start kahoot, you may be one of those skip-to-the-end-of-the-book kind of people. Don't take it personally, the technology won't judge you. ;)
+
+Link: 

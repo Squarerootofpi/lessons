@@ -10,14 +10,7 @@ Kahoot mental prep meme
 
 Lesson: Doctrinal Mastery Understand
 --- 
-Each scripture: 
-- Understand the doctrine
-   - Write the reference
-   - Write questions
-   - Write your own understanding of the doctrine
-   - Write how I would care if...
-      - It is **not!** true 
-      - It is true
+
    - Write how it would effect your daily choices: 
 - Explain the doctrine clearly using the scriptures
 - Remember and locate them
