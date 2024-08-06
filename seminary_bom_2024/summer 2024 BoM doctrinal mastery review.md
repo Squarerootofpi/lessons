@@ -27,7 +27,7 @@ Each scripture:
 
 https://www.churchofjesuschrist.org/study/manual/doctrinal-mastery-core-document-2023/doctrinal-mastery-passages-and-key-phrases?lang=eng
 
-**Mosiah 18:8–10**: Be “baptized in the name of the Lord, as a witness … that ye have entered into a covenant with him.”
+**[Mosiah 18:8–10](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/18.8-10?lang=eng#p8)**: Be “baptized in the name of the Lord, as a witness … that ye have entered into a covenant with him.”
 
 > 8 And it came to pass that he said unto them: Behold, here are the waters of Mormon (for thus were they called) and now, as ye are desirous to come into the fold of God, and to be called his people, and are willing to bear one another’s burdens, that they may be light;
 
@@ -35,7 +35,7 @@ https://www.churchofjesuschrist.org/study/manual/doctrinal-mastery-core-document
 
 > 10 Now I say unto you, if this be the desire of your hearts, what have you against being baptized in the name of the Lord, as a witness before him that ye have entered into a covenant with him, that ye will serve him and keep his commandments, that he may pour out his Spirit more abundantly upon you?
 
-**Alma 7:11–13**: “And he shall go forth, suffering pains and afflictions and temptations of every kind.”
+**[Alma 7:11–13](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/7.11-13?lang=eng#p11)**: “And he shall go forth, suffering pains and afflictions and temptations of every kind.”
 
 > 11 And he shall go forth, suffering pains and afflictions and temptations of every kind; and this that the word might be fulfilled which saith he will take upon him the pains and the sicknesses of his people.
 
@@ -43,13 +43,13 @@ https://www.churchofjesuschrist.org/study/manual/doctrinal-mastery-core-document
 
 > 13 Now the Spirit knoweth all things; nevertheless the Son of God suffereth according to the flesh that he might take upon him the sins of his people, that he might blot out their transgressions according to the power of his deliverance; and now behold, this is the testimony which is in me.
 
-**Alma 34:9–10**: “There must be an atonement made, … an infinite and eternal sacrifice.”
+**[Alma 34:9–10](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/34.9-10?lang=eng#p9)**: “There must be an atonement made, … an infinite and eternal sacrifice.”
 
 > 9 For it is expedient that an atonement should be made; for according to the great plan of the Eternal God there must be an atonement made, or else all mankind must unavoidably perish; yea, all are hardened; yea, all are fallen and are lost, and must perish except it be through the atonement which it is expedient should be made.
 
 > 10 For it is expedient that there should be a great and last sacrifice; yea, not a sacrifice of man, neither of beast, neither of any manner of fowl; for it shall not be a human sacrifice; but it must be an infinite and eternal sacrifice.
 
-**Alma 39:9**: “Go no more after the lusts of your eyes.”
+**[Alma 39:9](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/39.9?lang=eng#p9)**: “Go no more after the lusts of your eyes.”
 
 > 9 Now my son, I would that ye should repent and forsake your sins, and go no more after the lusts of your eyes, but cross yourself in all these things; for except ye do this ye can in nowise inherit the kingdom of God. Oh, remember, and take it upon you, and cross yourself in these things.
 
