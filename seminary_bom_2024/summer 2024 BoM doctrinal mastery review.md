@@ -60,4 +60,6 @@ https://www.churchofjesuschrist.org/study/manual/doctrinal-mastery-core-document
 
 Well, if you read before we start kahoot, you may be one of those skip-to-the-end-of-the-book kind of people. Don't take it personally, the technology won't judge you. ;)
 
-Link: 
+Links will be given in class. :) 
+
+
