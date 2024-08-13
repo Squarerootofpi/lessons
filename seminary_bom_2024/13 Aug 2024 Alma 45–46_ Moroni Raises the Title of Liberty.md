@@ -43,6 +43,9 @@ Question to think on during the rest of class, comments anytime. :smile:
 
 ## What is the most difficult thing to deal with regarding your religion in public? 
 
+### Video for starting the religious freedom discussion:
+https://www.churchofjesuschrist.org/media/video/2013-11-1020-what-is-religious-freedom?lang=eng
+
 ### President Dallin H. Oaks of the First Presidency taught:
 
 > If we cease valuing our churches for any reason, we threaten our personal spiritual life, and significant numbers separating themselves from God reduce His blessings to our nations.
@@ -62,6 +65,8 @@ Question to think on during the rest of class, comments anytime. :smile:
 > Religious freedom brings balance to competing philosophies. The good of religion, its reach, and the daily acts of love which religion inspires only multiply when we protect the freedom to express and act on core beliefs. (Ronald A. Rasband, “To Heal the World,” Liahona, May 2022, 91, 93)
 
 ### Elder Ronald A. Rasband of the Quorum of the Twelve Apostles taught on another occasion:
+
+(See Video)
 
 > There is [a] scourge sweeping the globe: attacks on your and my religious freedom. This growing sentiment seeks to remove religion and faith in God from the public square, schools, community standards, and civic discourse. Opponents of religious freedom seek to impose restrictions on expressions of heartfelt convictions. They even criticize and ridicule faith traditions.
 > Such an attitude marginalizes people, devaluing personal principles, fairness, respect, spirituality, and peace of conscience. (Ronald A. Rasband, “To Heal the World,” Liahona, May 2022, 91)

@@ -90,3 +90,10 @@ When have you resisted Satan’s temptations by using the tools the Lord has pro
 How will you strive to better seek God’s help to resist Satan’s temptations?
 
 
+
+
+# Extra notes:
+
+Video on lures; 
+
+https://www.churchofjesuschrist.org/study/general-conference/2010/10/o-that-cunning-plan-of-the-evil-one?lang=eng&id=p5-p8#p5
