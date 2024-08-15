@@ -4,9 +4,23 @@
 
 https://www.churchofjesuschrist.org/study/manual/book-of-mormon-seminary-teacher-manual-2024/33-alma-43-52/335-teacher?lang=eng
 
-Scripture Reference
+### Misunderstanding
 
-### [All doctrinal mastery linked](https://www.churchofjesuschrist.org/study/manual/doctrinal-mastery-core-document-2023/doctrinal-mastery-passages-and-key-phrases?lang=eng)
+Oh, the woes of tech...
+
+### Understanding
+
+https://www.churchofjesuschrist.org/study/scriptures/gs/knowledge?lang=eng&id=p1#p1
+
+https://www.churchofjesuschrist.org/study/scriptures/gs/understanding?lang=eng&id=p1#p1
+
+### Divine right to light
+
+https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/32.28?lang=eng#p28
+
+
+
+## [All doctrinal mastery linked](https://www.churchofjesuschrist.org/study/manual/doctrinal-mastery-core-document-2023/doctrinal-mastery-passages-and-key-phrases?lang=eng)
 
 Key Scripture Phrase
 
@@ -59,11 +73,19 @@ Moroni 10:4–5
 “Ask with a sincere heart, with real intent, having faith in Christ … [and] by the power of the Holy Ghost ye may know the truth of all things.”
 
 
-## How to understand it? Explain it. How to Explain it? Well... write it and try it. :smile:
+### How to understand it? Explain it. How to Explain it? Well... write it and try it. :smile:
 
 0. Open your study journal, make a table of 3 columns (or make something equivalent as a gospel library note). The 2nd column should be small. You can mark today's date at the top of the journal page (16 Aug 2024)
 1. Write each reference in a row in the 1st column, just the "Alma 7:11-13" portion (from Alma 7 to Moroni 10 )
 2. Read each reference, and in the 2nd column write how much you think you understand on a scale of 1-5, 1 being (I don't get it at all, I think it's worthless, or I literally don't believe it), and 5 being (I can defend this like an apologist :smile:)
 3. Choose 3 that you could like to learn better, or better understand. The numbers that are the lowest probably. Then, *write why you want to understand that particular one better* in the next column.
 4. On the next page, try to write the doctine or important parts of one or two of the passages in your own words.
+
+Identify key words and phrases, especially those that may be misunderstood. Consider looking up definitions or finding cross-references in the scriptures that can help clarify the passage. Why are these key words or phrases so important?
+
+How does this scripture passage connect to the Savior? What do you learn from or about Him? In what ways is He an example of the truths in this passage?
+
+What objects might you use or display to help explain the message of this scripture?
+
+
 
