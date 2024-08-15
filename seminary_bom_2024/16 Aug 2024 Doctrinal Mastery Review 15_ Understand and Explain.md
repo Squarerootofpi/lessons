@@ -89,7 +89,9 @@ Key Scripture Phrase
    1. Identify key words and phrases, especially those that may be misunderstood. Consider looking up definitions or finding cross-references in the scriptures that can help clarify the passage. Why are these key words or phrases so important?
    2. How does this scripture passage connect to the Savior? What do you learn from or about Him? In what ways is He an example of the truths in this passage?
    3. What objects might you use or display to help explain the message of this scripture?
-5. Pray. Ask heavenly father if you are understanding it right, and if the words are true.
+5. Pray to Heavenly Father in the name of Jesus Christ. 
+   1. Ask Heavenly Father if you are understanding it correctly. Seek for understanding. 
+   2. Ask Him if the words are true.
 
 
 
