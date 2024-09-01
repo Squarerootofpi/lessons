@@ -8,7 +8,7 @@ https://www.churchofjesuschrist.org/study/manual/book-of-mormon-seminary-teacher
 2. If you believe that Russell M. Nelson is God’s prophet on earth today, and briefly why or why not.
 
 # Story: 
-###Background:
+### Background:
 https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/7?lang=eng&id=1-3,6,9-13,17,22,29#1
 
 ### After his initial testimony; he reveals more
@@ -17,8 +17,8 @@ https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/8?lang=eng&id=1,7-
 
 ## In a pair, discuss
 Imagine that one of your friends who is not a member of the Church is surprised to learn that you believe the Lord calls prophets in our day. Your friend wonders why prophets are necessary for our time.
-What are some ways you could respond to your friend?
-Prepare to share two things with the class about how you could respond to your friend.
+- What are some ways you could respond to your friend?
+- Prepare to share two things with the class about how you could respond to your friend.
 
 
 
@@ -27,9 +27,9 @@ https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/9?lang=eng&id=1-4,
 
 
 
-Questions to write:
-If you had the opportunity to ask the prophet three questions, what would you ask?
-What can you do to gain or better have a testimony of the prophet today?
+## Questions to write individually:
+- If you had the opportunity to ask the prophet three questions, what would you ask?
+- What can you do to gain or better have a testimony of the prophet today?
 
 
 When Nephi was being questioned by the wicked Nephites, some began to defend him (see Helaman 8:7–8). 
