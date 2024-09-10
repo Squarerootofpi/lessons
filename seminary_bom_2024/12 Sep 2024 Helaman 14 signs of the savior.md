@@ -3,6 +3,10 @@ Helaman 14: Signs of the Savior
 https://www.churchofjesuschrist.org/study/manual/book-of-mormon-seminary-teacher-manual-2024/37-helaman-13-16/374-teacher?lang=eng
 
 
+## Individually: 
+- Write how you have seen the hand of God yesterday. 
+- Write down one thing you are grateful for.
+
 ## Why do we have signs?
 Helaman 14:12
 https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/14?lang=eng&id=p12#p12
