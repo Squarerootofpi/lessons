@@ -14,5 +14,7 @@ https://github.com/Squarerootofpi/lessons/blob/main/seminary_bom_2024/12%20Sep%2
 
 # Other links:
 
+## Assignment for the week:
+
 https://github.com/Squarerootofpi/lessons/blob/main/assignments/faith-and-prayer-alma-32-33.md
 
