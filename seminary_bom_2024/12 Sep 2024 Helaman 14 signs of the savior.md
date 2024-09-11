@@ -15,11 +15,12 @@ https://www.churchofjesuschrist.org/study/scriptures/bofm/hel/14?lang=eng&id=p12
 ### Half of the class:
 - Signs of His birth: Helaman 14:2–8
 - Signs of His death: Helaman 14:14–15, 20–27
-- As a group prepare to share: 
+- As a group prepare to share (have 3 different people share these 3 things): 
   - An overview of the signs
   - What symbols do these signs have in them that you notice? 
   - How might seeing these signs have affirmed the Nephites’ belief in the Savior?
 
+Hmmm. Music.
 
 ### Dallin H. Oaks:
 What if the day of His coming were tomorrow? If we knew that we would meet the Lord tomorrow—through our premature death or through His unexpected coming—what would we do today? What confessions would we make? What practices would we discontinue? What accounts would we settle? What forgivenesses would we extend? What testimonies would we bear?
