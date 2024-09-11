@@ -12,7 +12,7 @@ Remember, regular scripture study is more important than a few more minutes of s
 ### 2. Scripture Reading
 Each day, read your assigned portion of **Alma 32-33**. To do this:
 
-1. **Pray** to start your study. Ask for the spirit, and for help understanding.
+1. **Pray** to start your study. Ask for the spirit, and for help understanding as noted above.
 1. **Read the assigned verses** once through, focusing on understanding what is being taught.
 2. **Write** what you think the verses mean. 
 2. **Pray again**, asking Heavenly Father for greater understanding of what you’ve read.
