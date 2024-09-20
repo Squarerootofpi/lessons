@@ -4,7 +4,7 @@ This exact page is linked to by a bitly.
 
 # Lesson Link: 
 
-https://github.com/Squarerootofpi/lessons/blob/main/seminary_bom_2024/18%20Sep%202024%20Personal%20Learning%20and%20Assessment.md
+https://github.com/Squarerootofpi/lessons/blob/main/seminary_bom_2024/19%20Sep%202024%20Doctrinal%20Mastery%20Party.md
 
 
 <br>
