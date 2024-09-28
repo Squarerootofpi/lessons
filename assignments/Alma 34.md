@@ -24,13 +24,13 @@ Each day, read your assigned portion of **Alma 34**. To do this:
 
 ## Weekly Reading Plan 
 
-**Day 1:** Read Alma 34:1-7 
-**Day 2:** Read Alma 34:8-16 
-**Day 3:** Read Alma 34:17-25
-**Day 4:** Read Alma 34:26-27
-**Day 5:** Read Alma 34:28-30
-**Day 6:** Read Alma 34:31-36
-**Day 7:** Read Alma 34:37-41
+- **Day 1:** Read Alma 34:1-7 
+- **Day 2:** Read Alma 34:8-16 
+- **Day 3:** Read Alma 34:17-25
+- **Day 4:** Read Alma 34:26-27
+- **Day 5:** Read Alma 34:28-30
+- **Day 6:** Read Alma 34:31-36
+- **Day 7:** Read Alma 34:37-41
 
 ---
 

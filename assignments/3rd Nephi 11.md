@@ -24,13 +24,13 @@ Each day, read your assigned portion of **3rd Nephi 11**. To do this:
 
 ## Weekly Reading Plan 
 
-**Day 1:** Read Alma 32:1-10  
-**Day 2:** Read Alma 32:11-20  
-**Day 3:** Read Alma 32:21-30  
-**Day 4:** Read Alma 32:31-40  
-**Day 5:** Read Alma 32:41-43  
-**Day 6:** Read Alma 33:1-11
-**Day 7:** Read Alma 33:12-23
+- **Day 1:** Read Alma 32:1-10  
+- **Day 2:** Read Alma 32:11-20  
+- **Day 3:** Read Alma 32:21-30  
+- **Day 4:** Read Alma 32:31-40  
+- **Day 5:** Read Alma 32:41-43  
+- **Day 6:** Read Alma 33:1-11
+- **Day 7:** Read Alma 33:12-23
 
 ---
 
