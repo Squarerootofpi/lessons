@@ -34,12 +34,4 @@ Each day, read your assigned portion of **Alma 34**. To do this:
 
 ---
 
-## Prayer Instructions for Each Day
-
-1. **Pray before you begin**, asking for help to understand the teachings.
-2. **Read the assigned scriptures** once.
-3. **Pray for greater understanding** of what you’ve read.
-4. **Reread the assigned scriptures**.
-5. **Pray once more**, asking for a confirmation of truth and how to apply it in your life.
-
 By following this pattern each day, you will invite the Spirit to teach and guide you in your study.
