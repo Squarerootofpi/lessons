@@ -3,7 +3,7 @@
 This exact page is linked to by a bitly.
 
 # Lesson Link: 
-https://github.com/Squarerootofpi/lessons/blob/main/seminary_bom_2024/27%20Sep%202024%20Christ's%20Declaration%20of%20His%20Doctrine%20-%20End%20of%203rd%20Nephi%2011.md
+https://github.com/Squarerootofpi/lessons/blob/main/seminary_bom_2024/30%20Sep%202024%20blessed%20are%20ye%203%20Nephi%2012.md
 
 <br>
 
