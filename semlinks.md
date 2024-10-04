@@ -3,7 +3,7 @@
 This exact page is linked to by a bitly.
 
 # Lesson Link: 
-https://github.com/Squarerootofpi/lessons/blob/main/seminary_bom_2024/30%20Sep%202024%20blessed%20are%20ye%203%20Nephi%2012.md
+https://github.com/Squarerootofpi/lessons/blob/main/seminary_bom_2024/2%20Oct%202024%20The%20Teachings%20of%20Christ.md
 
 <br>
 
