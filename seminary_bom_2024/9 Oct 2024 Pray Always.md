@@ -16,6 +16,14 @@ FEAST:
 
 Fill out at least 3 of these spiritual thoughts. :smile:
 
+# Prayer
+
+### President Nelson (2016, Elder Nelson)
+
+"How else can we increase our power in the priesthood? We need to pray from our hearts. Polite recitations of past and upcoming activities, punctuated with some requests for blessings, cannot constitute the kind of communing with God that brings enduring power. Are you willing to pray to know how to pray for more power? The Lord will teach you."
+
+https://www.churchofjesuschrist.org/study/general-conference/2016/04/the-price-of-priesthood-power?id=p22&lang=eng#p22
+
 ## Instructions on Prayer
 
 https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/18?lang=eng&id=p15,18-p23#p15
@@ -31,6 +39,8 @@ Rate the following on a scale from 1 to 5, with 5 being the highest:
 - I communicate with and feel close to Heavenly Father when I pray.
 - I feel a desire to improve my personal prayers.
 
+
+## Jesus Praying:
 
 3 Nephi 17:14–17
 
