@@ -3,7 +3,7 @@
 This exact page is linked to by a bitly.
 
 # Lesson Link: 
-https://github.com/Squarerootofpi/lessons/blob/main/seminary_bom_2024/9%20Oct%202024%20Pray%20Always.md
+https://github.com/Squarerootofpi/lessons/blob/main/seminary_bom_2024/11%20Oct%202024%20-%20Ooh%20I%20can%20memorize.md
 
 <br>
 
