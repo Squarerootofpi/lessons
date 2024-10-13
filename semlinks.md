@@ -2,8 +2,7 @@
 
 This exact page is linked to by a bitly.
 
-# Lesson Link: 
-https://github.com/Squarerootofpi/lessons/blob/main/seminary_bom_2024/11%20Oct%202024%20-%20Ooh%20I%20can%20memorize.md
+# [Lesson Link](./seminary_bom_2024/14%20Oct%202024%20-%20Christ%20Will%20Gather%20His%20People.md)
 
 <br>
 
