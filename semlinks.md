@@ -2,7 +2,7 @@
 
 This exact page is linked to by a bitly.
 
-# [Lesson Link](./seminary_bom_2024/14%20Oct%202024%20-%20Christ%20Will%20Gather%20His%20People.md)
+# [Lesson Link](./seminary_bom_2024/15%20Oct%202024%20-%20Tithing,%20Temple,%20and%20Family%20History.md)
 
 <br>
 
