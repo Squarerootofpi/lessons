@@ -10,6 +10,10 @@ This exact page is linked to by a bitly.
 
 # Other links:
 
+## Feedback/polling
+
+https://docs.google.com/forms/d/e/1FAIpQLSe8I5gLMIk-Z-3tXDe8Hl_2wWEixxSWJjjldrP9R0WuoE4jEw/viewform?usp=sf_link
+
 ## Current Assignment: 
 https://github.com/Squarerootofpi/lessons/blob/main/assignments/Alma%2034.md
 
