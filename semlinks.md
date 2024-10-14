@@ -19,6 +19,10 @@ https://github.com/Squarerootofpi/lessons/blob/main/assignments/faith-and-prayer
 
 ## Other links:
 
+Your Patriarchal Blessing - Chapters of the Blueprint God has for you:
+- https://www.churchofjesuschrist.org/study/general-conference/2023/04/25bennett?lang=eng
+- https://www.churchofjesuschrist.org/study/general-conference/2023/04/44yamashita?lang=eng
+
 Good links on feeling/recognizing the spirit:
 - https://www.churchofjesuschrist.org/study/liahona/2022/09/digital-only/what-if-i-dont-seem-to-feel-the-spirit?lang=eng
 - https://www.churchofjesuschrist.org/inspiration/what-does-the-holy-ghost-feel-like?lang=eng
