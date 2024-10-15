@@ -71,3 +71,4 @@ https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/24?lang=eng&id=p8
 
 What is something you feel the Lord would have you do to continue participating in temple and family history work? What difference will this make in your life?
 
+# Tomorrow: Bring something that represents a talent you have
