@@ -17,6 +17,10 @@ https://docs.google.com/forms/d/e/1FAIpQLSe8I5gLMIk-Z-3tXDe8Hl_2wWEixxSWJjjldrP9
 ## Current Assignment: 
 https://github.com/Squarerootofpi/lessons/blob/main/assignments/Alma%2034.md
 
+Also see Lazarus: 
+
+[secondary assignment](./assignments/marymarthalazarus.md)
+
 ## Past assignments:
 
 https://github.com/Squarerootofpi/lessons/blob/main/assignments/faith-and-prayer-alma-32-33.md
