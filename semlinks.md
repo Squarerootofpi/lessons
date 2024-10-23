@@ -2,7 +2,7 @@
 
 This exact page is linked to by a bitly.
 
-# [Lesson Link](./seminary_bom_2024/15%20Oct%202024%20-%20Tithing,%20Temple,%20and%20Family%20History.md)
+# [Lesson Link](./seminary_bom_2024/23%20Oct%202024%20Doctinal%20mastery%20-%203%20Nephi%2027_20.md)
 
 <br>
 
