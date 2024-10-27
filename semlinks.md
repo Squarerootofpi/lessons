@@ -2,7 +2,7 @@
 
 This exact page is linked to by a bitly.
 
-# [Lesson Link](./seminary_bom_2024/23%20Oct%202024%20Doctinal%20mastery%20-%203%20Nephi%2027_20.md)
+# [Lesson Link](./seminary_bom_2024/28%20Oct%202024%20who%20is%20Mormon.md)
 
 <br>
 
