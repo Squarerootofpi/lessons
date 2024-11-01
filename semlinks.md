@@ -2,7 +2,7 @@
 
 This exact page is linked to by a bitly.
 
-# [Lesson Link](./seminary_bom_2024/30%20Oct%202024%20the%20fall%20of%20the%20nephites.md)
+# [Lesson Link](./seminary_bom_2024//1%20Nov%202024%20Doctinal%20Mastery%20Apply.md)
 
 <br>
 
