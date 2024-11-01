@@ -38,3 +38,9 @@ Good links on feeling/recognizing the spirit:
 # All Topics: 
 
 https://github.com/Squarerootofpi/lessons/blob/main/topics/topics.md
+
+## Doctrinal mastery
+
+https://www.churchofjesuschrist.org/study/manual/doctrinal-mastery-core-document-2023/doctrinal-mastery-passages-and-key-phrases?lang=eng
+
+
