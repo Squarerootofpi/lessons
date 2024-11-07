@@ -43,4 +43,5 @@ https://github.com/Squarerootofpi/lessons/blob/main/topics/topics.md
 
 https://www.churchofjesuschrist.org/study/manual/doctrinal-mastery-core-document-2023/doctrinal-mastery-passages-and-key-phrases?lang=eng
 
+![2533593002448896269 jpg](https://github.com/user-attachments/assets/e97d86b5-8dc0-4d95-a0f0-606ffe6d5071)
 
