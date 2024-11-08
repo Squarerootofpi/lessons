@@ -44,6 +44,10 @@ https://github.com/Squarerootofpi/lessons/blob/main/topics/topics.md
 https://www.churchofjesuschrist.org/study/manual/doctrinal-mastery-core-document-2023/doctrinal-mastery-passages-and-key-phrases?lang=eng
 
 
+### Memorizing while your companion is on the toilet...
+
+![image](https://github.com/user-attachments/assets/c427aeb7-28a4-420c-9175-65506334b7e4)
+
 ### Just a magic eye image...
 
 ![2533593002448896269 jpg](https://github.com/user-attachments/assets/e97d86b5-8dc0-4d95-a0f0-606ffe6d5071)
