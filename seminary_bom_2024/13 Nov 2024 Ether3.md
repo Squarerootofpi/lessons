@@ -1,7 +1,8 @@
 https://www.churchofjesuschrist.org/study/manual/book-of-mormon-seminary-teacher-manual-2024/46-ether-1-5/463-teacher?lang=eng
 
 
-https://www.churchofjesuschrist.org/study/history/saints-v3/part-1/08-the-rock-of-revelation?lang=eng&id=p46-p58#p46
+Jan Rathoof: https://www.churchofjesuschrist.org/study/history/saints-v3/part-1/08-the-rock-of-revelation?lang=eng&id=p46-p58#p46
+
 
 
 ## Group 1 
