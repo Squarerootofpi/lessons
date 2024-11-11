@@ -14,3 +14,8 @@ As the brother of Jared asked the Lord to touch the stones to make them shine, h
 ## Group 4
 The brother of Jared promised that he would believe the words the Lord would speak in the future (see Ether 3:11–12). Discuss (and prepare to share) why you think the brother of Jared trusted in the Lord so much that he agreed to this.
 
+
+## Jeffrey R. Holland:
+“Redemptive faith must often be exercised toward experiences in the future[.] … Faith is to agree unconditionally—and in advance—to whatever conditions God may require in both the near and distant future” (Jeffrey R. Holland, Christ and the New Covenant: The Messianic Message of the Book of Mormon [1997], 18–19).
+
+God “knoweth all things, and there is not anything save he knows it” [2 Nephi 9:20]. … Nevertheless, God has frequently asked questions of mortals, usually as a way to test their faith, measure their honesty, or develop their knowledge. (Jeffrey R. Holland, Christ and the New Covenant: The Messianic Message of the Book of Mormon [1997], 19–20)
