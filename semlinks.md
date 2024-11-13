@@ -2,7 +2,7 @@
 
 This exact page is linked to by a bitly.
 
-# [Lesson Link](./seminary_bom_2024//1%20Nov%202024%20Doctinal%20Mastery%20Apply.md)
+# [Lesson Link](./seminary_bom_2024/13%20Nov%202024%20Ether3.md)
 
 <br>
 
