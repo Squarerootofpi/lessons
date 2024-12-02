@@ -2,7 +2,7 @@
 
 This exact page is linked to by a bitly.
 
-# [Lesson Link](./seminary_bom_2024/13%20Nov%202024%20Ether3.md)
+# [Lesson Link](./seminary_bom_2024/2%20Dec%202024%20-%20weakness%20made%20strong.md)
 
 <br>
 
