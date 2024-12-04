@@ -19,6 +19,7 @@ They are separate:
 They are one: 
 - John 17:21 - https://www.churchofjesuschrist.org/study/scriptures/nt/john/17.21?lang=eng#p21
 - D&C 35:2 - https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/35.2?lang=eng#p2
+- 3 Nephi 11:25-27 - https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/11?lang=eng&id=25-27#25
 
 
 Jeffrey R. Holland: 
