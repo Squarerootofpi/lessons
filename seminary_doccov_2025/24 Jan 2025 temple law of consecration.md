@@ -6,7 +6,7 @@
 
 Resources on temples:
 
-https://www.churchofjesuschrist.org/temples/what-is-temple-endowment?lang=eng
+https://www.churchofjesuschrist.org/temples?lang=eng
 - Basically the best temple resource
 
 https://www.churchofjesuschrist.org/temples/prophetic-teachings-on-temples?lang=eng
