@@ -2,7 +2,7 @@
 
 This exact page is linked to by a bitly.
 
-# [Lesson Link](./seminary_bom_2024/2%20Dec%202024%20-%20weakness%20made%20strong.md)
+# [Lesson Link](./seminary_doccov_2025/24%20Jan%202025%20temple%20law%20of%20consecration.md)
 
 <br>
 
