@@ -23,8 +23,10 @@ https://www.churchofjesuschrist.org/study/history/topics/consecration-and-stewar
 
 Doctrine and Covenants 42:30, 38–39 (also see 31-33)
 - Good base. Also, just an amazing chapter. :smile:
+
 Doctrine and Covenants 78:3–7
 - Some why's, unity/obedience
+
 Doctrine and Covenants 105:1–5
 - Importance of consecration to celestial living
 
