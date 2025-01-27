@@ -2,7 +2,7 @@
 
 This exact page is linked to by a bitly.
 
-# [Lesson Link](./seminary_doccov_2025/24%20Jan%202025%20temple%20law%20of%20consecration.md)
+# [Lesson Link](./seminary_doccov_2025/27%20Jan%202025%20doccov_3.md)
 
 <br>
 
