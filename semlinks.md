@@ -2,7 +2,7 @@
 
 This exact page is linked to by a bitly.
 
-# [Lesson Link](./seminary_doccov_2025/27%20Jan%202025%20doccov_3.md)
+# [Lesson Link](./seminary_doccov_2025/29%20Jan%202025%20doccov_5.md)
 
 <br>
 
