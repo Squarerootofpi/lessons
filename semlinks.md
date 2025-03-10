@@ -2,7 +2,7 @@
 
 This exact page is linked to by a bitly.
 
-# [Lesson Link](./seminary_doccov_2025/24%20Feb%202025%20docov13%20worth%20of%20a%20soul.md)
+# [Lesson Link](./seminary_doccov_2025/10%20Mar%202025%20doccov_20part1%20-%20why%20a%20church.md)
 
 <br>
 
