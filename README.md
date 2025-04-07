@@ -1,1 +1,3 @@
 # lessons
+
+(semlink)[./semlink.md]
