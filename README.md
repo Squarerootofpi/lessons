@@ -1,3 +1,3 @@
 # lessons
 
-(semlink)[./semlink.md]
+[semlink](./semlink.md)
