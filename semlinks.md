@@ -4,6 +4,8 @@ This exact page is linked to by a bitly.
 
 # [Lesson Link](./seminary_doccov_2025/10%20Mar%202025%20doccov_20part1%20-%20why%20a%20church.md)
 
+# [GC Summaries](https://newsroom.churchofjesuschrist.org/article/april-2025-general-conference-talks-news-announcements)
+
 <br>
 
 <br>
