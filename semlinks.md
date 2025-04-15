@@ -2,9 +2,7 @@
 
 This exact page is linked to by a bitly.
 
-# [Lesson Link](./seminary_doccov_2025/8-apr-2025-docmasteryreview.md)
-
-[Lesson Link](./seminary_doccov_2025/8-apr-2025-docmasteryreview.md)
+# [Lesson Link](./seminary_doccov_2025/15-Apr-2025-goalsetting.md)
 
 # [GC Summaries](https://newsroom.churchofjesuschrist.org/article/april-2025-general-conference-talks-news-announcements)
 
