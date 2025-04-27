@@ -48,6 +48,8 @@ The Brother of Jared's increase of faith - David A. Bednar
 
 # [Doctrinal Mastery](./doctrinal-mastery/doctrinal-mastery.md)
 
+# [Role Plays and Scenarios](./roleplay-scenarios-to-others.md)
+
 <!-- 
 ### Just a magic eye image...
 
