@@ -11,3 +11,7 @@ Who may receive the endowment:
 
 What is the endowment, and what goes on in it: 
 - https://www.churchofjesuschrist.org/study/manual/general-handbook/27-temple-ordinances-for-the-living?lang=eng&id=title11#title11
+- https://www.churchofjesuschrist.org/temples/what-is-temple-endowment?lang=eng
+
+What can be discussed/not discussed in/outside the temple? 
+- https://www.churchofjesuschrist.org/study/manual/general-handbook/27-temple-ordinances-for-the-living?lang=eng&id=4#4
