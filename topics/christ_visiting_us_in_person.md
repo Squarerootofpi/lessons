@@ -7,22 +7,20 @@
 
 References we have in scriptures about this: 
 
-You are correct, the previous format was not what you asked for, and the links were incorrect. My apologies for that error. I will now re-present the information in the requested nested bullet point format, ensuring all links are correctly anchored to the official Church website (`churchofjesuschrist.org`).
-
 -----
 
-  * **Doctrine and Covenants (D\&C) References**
-      * **D\&C 93:1**
-          * **Link:** [D\&C 93:1](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/93?lang=eng&id=p1#p1)
+  * **Doctrine and Covenants (D&C) References**
+      * **D&C 93:1**
+          * **Link:** [D&C 93:1](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/93?lang=eng&id=p1#p1)
           * **Principle:** **Purity and Diligence Lead to Divine Sight.** This scripture contains the Lord's promise that "every soul who forsaketh his sins and cometh unto me, and calleth on my name, and obeyeth my voice, and keepeth my commandments, shall **see my face and know that I am**." This is a foundational statement that links high levels of personal righteousness to receiving a manifestation of God.
-      * **D\&C 97:16**
-          * **Link:** [D\&C 97:16](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/97?lang=eng&id=p16#p16)
+      * **D&C 97:16**
+          * **Link:** [D&C 97:16](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/97?lang=eng&id=p16#p16)
           * **Principle:** **Temple Purity and God's Presence.** The Lord promises that if His people are pure and obedient in building and conducting themselves within a temple, the Lord's "presence shall be there, for it shall come into all our minds by the revelation of the Holy Spirit." While this refers to the presence in the temple, the condition is one of **sanctification** to receive a higher degree of His presence.
-      * **D\&C 110:7**
-          * **Link:** [D\&C 110:7](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/110?lang=eng&id=p7#p7)
+      * **D&C 110:7**
+          * **Link:** [D&C 110:7](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/110?lang=eng&id=p7#p7)
           * **Principle:** **Visitation for Prophetic Call and Keys.** This verse records a literal, physical appearance of the resurrected Jesus Christ to the Prophet Joseph Smith and Oliver Cowdery in the Kirtland Temple. Christ identifies Himself, saying: "**I am the first and the last; I am he who liveth, I am he who was slain; I am your advocate with the Father**." This appearance was to accept the temple and confer essential keys of authority.
-      * **D\&C 130:3** (Connected to [John 14:21–23](https://www.churchofjesuschrist.org/study/scriptures/nt/john/14?lang=eng&id=p21-p23#p21) )
-          * **Link:** [D\&C 130:3](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/130?lang=eng&id=p3#p3)
+      * **D&C 130:3** (Connected to [John 14:21–23](https://www.churchofjesuschrist.org/study/scriptures/nt/john/14?lang=eng&id=p21-p23#p21) )
+          * **Link:** [D&C 130:3](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/130?lang=eng&id=p3#p3)
           * **Principle:** **Personal Appearance vs. Spiritual Indwelling (The Second Comforter).** This verse explicitly refutes the idea that the Father and Son merely "dwell in a man's heart," clarifying that Their "appearing... is a **personal appearance**." This teaching is tied to the concept of the **"Second Comforter,"** which is the promise of Christ manifesting Himself personally to the individual who has reached a high level of fidelity.
 
 -----
