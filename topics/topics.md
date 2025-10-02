@@ -15,3 +15,6 @@ Look, you should be willing to reason with the scriptures. It's important.
 ### [Good Defending the Faith](./good_defending_the_faith.md)
 
 ### [Stand Forever](https://www.churchofjesuschrist.org/study/liahona/2020/10/stand-on-the-rock-of-revelation?lang=eng)
+
+### [Christ Visiting People Personally](./christ_visiting_us_in_person.md)
+
