@@ -18,3 +18,4 @@ Look, you should be willing to reason with the scriptures. It's important.
 
 ### [Christ Visiting People Personally](./christ_visiting_us_in_person.md)
 
+### [Plan of Salvation by Christ](./plan_of_salvation_and_Christ.md)

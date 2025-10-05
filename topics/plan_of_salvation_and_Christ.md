@@ -5,8 +5,6 @@
 
 Christ's role in each aspect topographical state of the plan of salvation: 
 
-Of course. I can provide that list for you. Here are the propositions regarding Jesus Christ's role in the Plan of Salvation, each substantiated with scripture references from the standard works.
-
 ### **Premortal Life**
 
 *   **Jesus Christ championed Heavenly Father's plan, which centered on our agency.**
