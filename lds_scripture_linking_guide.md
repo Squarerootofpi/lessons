@@ -63,9 +63,16 @@ Format: `?lang=eng&id=p[verse_number]#p[verse_number]`
 Example: `?lang=eng&id=p21#p21` (for verse 21)
 
 ### Verse Ranges
-For verse ranges, use the starting verse in the URL parameters but include the range in the link text.
+For consecutive verse ranges, use the range format in the id parameter:
+Format: `?lang=eng&id=p[start_verse]-p[end_verse]#p[start_verse]`
 
-Example: For verses 21-23, use `?lang=eng&id=p21#p21` but display as "Alma 32:21-23"
+Example: For verses 21-23, use `?lang=eng&id=p21-p23#p21`
+
+### Multiple Non-Consecutive Verses
+For multiple specific verses (like 7, 9), use comma separation:
+Format: `?lang=eng&id=p[verse1],p[verse2]#p[verse1]`
+
+Example: For verses 7 and 9, use `?lang=eng&id=p7,p9#p7`
 
 ## Complete URL Examples
 
@@ -86,10 +93,15 @@ Example: For verses 21-23, use `?lang=eng&id=p21#p21` but display as "Alma 32:21
 - **Joseph Smith—History 1:15**: `https://www.churchofjesuschrist.org/study/scriptures/pgp/js-h/1?lang=eng&id=p15#p15`
 - **Moses 1:39**: `https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/1?lang=eng&id=p39#p39`
 
+### Examples with Ranges and Multiple Verses
+- **Moses 2:26–27**: `https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/2?lang=eng&id=p26-p27#p26`
+- **3 Nephi 17:7, 9**: `https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/17?lang=eng&id=p7,p9#p7`
+- **D&C 76:22-24**: `https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/76?lang=eng&id=p22-p24#p22`
+
 ## Notes
 
 1. All URLs include `lang=eng` for English language
 2. Verse numbers use the format `p[number]` for both the `id` parameter and the anchor
-3. For verse ranges, link to the first verse but include the full range in the display text
+3. For verse ranges, use the range format in the id parameter (e.g., `id=p21-p23#p21`)
 4. Book names with numbers use hyphens (e.g., `1-ne` for 1 Nephi)
 5. Doctrine and Covenants has a unique path structure with `dc-testament/dc`
