@@ -37,18 +37,18 @@ Christ's role in each aspect topographical state of the plan of salvation:
 
 ### **Creation**
 
-*   **Jesus Christ, under Heavenly Father's direction, created the Earth.**
+*   **Jesus Christ, under Heavenly Father's direction, created everything.**
     *   [John 1:1–3](https://www.churchofjesuschrist.org/study/scriptures/nt/john/1?lang=eng&id=p1-p3#p1)
-    *   [Hebrews 1:1–2](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/1?lang=eng&id=p1-p2#p1)
     *   [3 Nephi 9:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/3-ne/9?lang=eng&id=p15#p15)
     *   [Moses 2:1](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/2?lang=eng&id=p1#p1)
     *   [Abraham 3:24](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr/3?lang=eng&id=p24#p24)
 
 *   **Jesus Christ created worlds without number.**
+    *   [Hebrews 1:1–2](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/1?lang=eng&id=p1-p2#p1)
     *   [Moses 1:33](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/1?lang=eng&id=p33#p33)
     *   [Doctrine and Covenants 76:24](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/76?lang=eng&id=p24#p24)
 
-*   **Jesus Christ created us in the image of God.**
+*   **Jesus Christ created us in the image of God, in His own image.**
     *   [Genesis 1:26–27](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/1?lang=eng&id=p26-p27#p26)
     *   [Moses 2:26–27](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses/2?lang=eng&id=p26-p27#p26)
     *   [Ether 3:15](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/3?lang=eng&id=p15#p15)
@@ -65,13 +65,12 @@ Christ's role in each aspect topographical state of the plan of salvation:
     *   [Acts 4:12](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/4?lang=eng&id=p12#p12)
     *   [2 Nephi 9:23](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/9?lang=eng&id=p23#p23)
     *   [Alma 32:21](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/32?lang=eng&id=p21#p21)
-    *   [Ether 12:6](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/12?lang=eng&id=p6#p6)
+    *   [Ether 12:4,6](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/12?lang=eng&id=p4,p6#p4)
 
 *   **Jesus Christ lived a perfect, sinless life, which allowed Him to perform the atoning sacrifice.**
     *   [Hebrews 4:15](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/4?lang=eng&id=p15#p15)
     *   [1 Peter 2:22](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/2?lang=eng&id=p22#p22)
     *   [Mosiah 15:5](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/15?lang=eng&id=p5#p5)
-    *   [Doctrine and Covenants 93:12–14](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/93?lang=eng&id=p12-p14#p12)
 
 *   **Jesus Christ is our perfect example.**
     *   [1 Peter 2:21](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/2?lang=eng&id=p21#p21)
@@ -100,7 +99,6 @@ Christ's role in each aspect topographical state of the plan of salvation:
 *   **Jesus Christ offers hope.**
     *   [Romans 15:13](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/15?lang=eng&id=p13#p13)
     *   [1 Peter 1:3](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/1?lang=eng&id=p3#p3)
-    *   [2 Nephi 31:20](https://www.churchofjesuschrist.org/study/scriptures/bofm/2-ne/31?lang=eng&id=p20#p20)
     *   [Ether 12:4](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/12?lang=eng&id=p4#p4)
     *   [Moroni 7:41](https://www.churchofjesuschrist.org/study/scriptures/bofm/moro/7?lang=eng&id=p41#p41)
     *   [Doctrine and Covenants 68:6](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/68?lang=eng&id=p6#p6)
@@ -120,7 +118,7 @@ Christ's role in each aspect topographical state of the plan of salvation:
     *   [Alma 26:12](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/26?lang=eng&id=p12#p12)
     *   [Ether 12:27](https://www.churchofjesuschrist.org/study/scriptures/bofm/ether/12?lang=eng&id=p27#p27)
 
-*   **Jesus Christ offers forgiveness of sins.**
+*   **Jesus Christ offers forgiveness of sins, and takes the consequences.**
     *   [Isaiah 1:18](https://www.churchofjesuschrist.org/study/scriptures/ot/isa/1?lang=eng&id=p18#p18)
     *   [Acts 2:38](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/2?lang=eng&id=p38#p38)
     *   [1 John 1:7, 9](https://www.churchofjesuschrist.org/study/scriptures/nt/1-jn/1?lang=eng&id=p7,p9#p7)
@@ -157,7 +155,7 @@ Christ's role in each aspect topographical state of the plan of salvation:
 ### **Postmortal Life**
 
 *   **Jesus Christ organized missionary work in the spirit world.**
-    *   [1 Peter 3:19](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/3?lang=eng&id=p19#p19)
+    *   [1 Peter 3:18-20](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/3?lang=eng&id=p18-p20#p18)
     *   [1 Peter 4:6](https://www.churchofjesuschrist.org/study/scriptures/nt/1-pet/4?lang=eng&id=p6#p6)
     *   [Doctrine and Covenants 138:29–37](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/138?lang=eng&id=p29-p37#p29)
 
@@ -168,7 +166,7 @@ Christ's role in each aspect topographical state of the plan of salvation:
 
 *   **Jesus Christ established the ordinance of baptism as a symbol of His death and Resurrection.**
     *   [Romans 6:3–5](https://www.churchofjesuschrist.org/study/scriptures/nt/rom/6?lang=eng&id=p3-p5#p3)
-    *   [Mosiah 18:14](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/18?lang=eng&id=p14#p14)
+    *   [Mosiah 18:13-14](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/18?lang=eng&id=p13-p14#p13)
     *   [Doctrine and Covenants 128:12–13](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/128?lang=eng&id=p12-p13#p12)
 
 *   **Jesus Christ established covenants by which we take His name upon us.**
