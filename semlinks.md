@@ -2,7 +2,7 @@
 
 This exact page is linked to by a bitly.
 
-# [Lesson Link](./seminary_doccov_2025/5may2025-namesnamesnames.md)
+# [Lesson Link](./topics/plan_of_salvation_and_Christ_nocomponentspropositions%20copy.md)
 
 # [GC Summaries](https://newsroom.churchofjesuschrist.org/article/april-2025-general-conference-talks-news-announcements)
 
