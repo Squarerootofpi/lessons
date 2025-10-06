@@ -79,20 +79,18 @@ Christ's role in each aspect topographical state of the plan of salvation:
 *   **Jesus Christ, as the first to be resurrected, made universal resurrection possible for all.**
     *   [Alma 11:42–44](https://www.churchofjesuschrist.org/study/scriptures/bofm/alma/11?lang=eng&id=p42-p44#p42)
 
-### **Postmortal Life**
-
-*   **Jesus Christ organized missionary work in the spirit world.**
-    *   [Doctrine and Covenants 138:29–37](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/138?lang=eng&id=p29-p37#p29)
-
 *   **Jesus Christ directs His Church and the administration of all saving ordinances.**
     *   [Ephesians 2:20](https://www.churchofjesuschrist.org/study/scriptures/nt/eph/2?lang=eng&id=p20#p20)
     *   [Doctrine and Covenants 115:4](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/115?lang=eng&id=p4#p4)
 
-*   **Jesus Christ established the ordinance of baptism as a symbol of His death and Resurrection.**
-
 *   **Jesus Christ established covenants by which we take His name upon us.**
     *   [Mosiah 5:8](https://www.churchofjesuschrist.org/study/scriptures/bofm/mosiah/5?lang=eng&id=p8#p8)
     *   [Doctrine and Covenants 20:37](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/20?lang=eng&id=p37#p37)
+
+### **Postmortal Life**
+
+*   **Jesus Christ organized missionary work in the spirit world.**
+    *   [Doctrine and Covenants 138:29–37](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/138?lang=eng&id=p29-p37#p29)
 
 ### **Final Judgment and Exaltation**
 
