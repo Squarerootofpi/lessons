@@ -21,4 +21,4 @@ Look, you should be willing to reason with the scriptures. It's important.
 ### [Plan of Salvation by Christ](./plan_of_salvation_and_Christ.md)
 
 #### [Plan of Salvation by Christ abbreviated](./plan_of_salvation_and_Christ_nocomponentspropositions.md)
-#### [Plan of Salvation by Christ Links and Components](./plan_of_salvation_and_Christ_nocomponentspropositions%20copy.md)
+#### [Plan of Salvation by Christ Links and Components](./plan_of_salvation_and_Christ_nocomponentspropositions_linksonly.md)

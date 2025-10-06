@@ -2,7 +2,7 @@
 
 This exact page is linked to by a bitly.
 
-# [Lesson Link](./topics/plan_of_salvation_and_Christ_nocomponentspropositions%20copy.md)
+# [Lesson Link](./topics/plan_of_salvation_and_Christ_nocomponentspropositions_linksonly.md)
 
 # [GC Summaries](https://newsroom.churchofjesuschrist.org/article/april-2025-general-conference-talks-news-announcements)
 
