@@ -21,6 +21,8 @@ Note that much of the gospel topics and topics and questions are very well reaso
 
 ### [Church Policies, a Selection of Most Asked About Ones](https://www.churchofjesuschrist.org/study/manual/general-handbook/38-church-policies-and-guidelines?lang=eng#title_number2)
 
+As a warning, reading and understanding policies will not help you understand a concept better or answer a question if you do not have a testimony of important underlying doctrines.
+
 ## Brother Steed's Own Compositions
 
 ### [Baptism by Authority](./baptism_by_authority.md)
