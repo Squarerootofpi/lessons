@@ -19,6 +19,8 @@ Note that much of the gospel topics and topics and questions are very well reaso
 
 ### [Church History Questions](https://www.churchofjesuschrist.org/study/video/answers-to-church-history-questions?lang=eng)
 
+### [Church Policies, a Selection of Most Asked About Ones](https://www.churchofjesuschrist.org/study/manual/general-handbook/38-church-policies-and-guidelines?lang=eng#title_number2)
+
 ## Brother Steed's Own Compositions
 
 ### [Baptism by Authority](./baptism_by_authority.md)
