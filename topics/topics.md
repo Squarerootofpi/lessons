@@ -7,6 +7,19 @@
 Look, you should be willing to reason with the scriptures. It's important.
 - https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/68?lang=eng&id=1#1
 
+## Gospel Library and Primary Church Resources: 
+
+Note that much of the gospel topics and topics and questions are very well reasoned and good sources, but some topics essays may reflect a more secular viewpoint. 
+
+### [Topics and Questions](https://www.churchofjesuschrist.org/study/manual/gospel-topics?lang=eng)
+
+### [Gospel Topics Essays](https://www.churchofjesuschrist.org/study/manual/gospel-topics-essays?lang=eng)
+
+### [Church History Topics](https://www.churchofjesuschrist.org/study/history/topics?lang=eng)
+
+### [Church History Questions](https://www.churchofjesuschrist.org/study/video/answers-to-church-history-questions?lang=eng)
+
+## Brother Steed's Own Compositions
 
 ### [Baptism by Authority](./baptism_by_authority.md)
 
