@@ -57,5 +57,3 @@ All of these things were instrumental in my preparation for adult life. …
 
 My mission completely shaped my life. I learned it is worth the effort to trust in God. (“Lift Up Your Heart and
 Rejoice,” Liahona, May 2022, 42–43)
-
-# Other powerful Missionary verses related to questions being answered
