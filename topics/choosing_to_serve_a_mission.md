@@ -1,5 +1,8 @@
 # Choosing to serve a mission
 
+* Contents
+{:toc}
+
 Youths' difficult decisions to serve a mission: 
 - https://www.churchofjesuschrist.org/study/liahona/2020/03/asa-eng-local-pages/local-news-004?lang=eng&id=title1#title1
 - https://www.churchofjesuschrist.org/study/new-era/2015/09/to-stay-or-obey?lang=eng
