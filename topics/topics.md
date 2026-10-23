@@ -41,3 +41,7 @@ As a warning, reading and understanding policies will not help you understand a 
 
 #### [Plan of Salvation by Christ abbreviated](./plan_of_salvation_and_Christ_nocomponentspropositions.md)
 #### [Plan of Salvation by Christ Links and Components](./plan_of_salvation_and_Christ_nocomponentspropositions_linksonly.md)
+
+### Serving Missions
+
+#### [Choosing to Serve a Mission](./choosing_to_serve_a_mission.md)
